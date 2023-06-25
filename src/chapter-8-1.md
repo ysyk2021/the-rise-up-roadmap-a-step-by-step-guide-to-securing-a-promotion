@@ -1,5 +1,4 @@
-Chapter 8: Conclusion: Recap of Key Points
-==========================================
+# Recap of Key Points
 
 In this book, we have explored the Rise Up Roadmap, a step-by-step guide to securing a promotion. We have discussed strategies for identifying career goals, building skills and competencies, networking and building relationships, and overcoming obstacles and challenges in career advancement. In this final chapter, we will recap the key points covered in the book.
 

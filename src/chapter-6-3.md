@@ -1,5 +1,4 @@
-Chapter 6: Applying the Rise Up Roadmap Across Different Industries and Sectors: Using the Rise Up Roadmap for Public Service and Government Roles
-==================================================================================================================================================
+# Using the Rise Up Roadmap for Public Service and Government Roles
 
 The principles outlined in "The Rise Up Roadmap" are applicable to a wide variety of industries and sectors. One area where career advancement is particularly important is in public service and government roles, where the ability to secure a promotion can have significant impact on one's ability to effect change and make a difference in people's lives.
 

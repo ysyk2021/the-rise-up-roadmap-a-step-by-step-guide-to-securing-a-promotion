@@ -1,5 +1,4 @@
-Chapter 7: Measuring Success in the Rise Up Roadmap: Continuously Improving Promotion Approaches and Mindsets
-=============================================================================================================
+# Continuously Improving Promotion Approaches and Mindsets
 
 Measuring success is an important component of the Rise Up Roadmap. In this chapter, we will discuss how to measure success and continuously improve promotion approaches and mindsets.
 

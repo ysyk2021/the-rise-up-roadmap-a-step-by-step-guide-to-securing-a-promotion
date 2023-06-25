@@ -1,5 +1,4 @@
-Chapter 3: Strategies for Building a Promotion Plan: Developing a System for Performance Evaluation and Goal Setting
-====================================================================================================================
+# Developing a System for Performance Evaluation and Goal Setting
 
 Developing a system for performance evaluation and goal setting is essential for building a promotion plan. In this chapter, we will discuss strategies for developing a system for performance evaluation and goal setting.
 

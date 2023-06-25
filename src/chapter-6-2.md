@@ -1,5 +1,4 @@
-Chapter 6: Applying the Rise Up Roadmap Across Different Industries and Sectors: Applying the Rise Up Roadmap for Non-Profit Organizations and Social Enterprises
-=================================================================================================================================================================
+# Applying the Rise Up Roadmap for Non-Profit Organizations and Social Enterprises
 
 Non-profit organizations and social enterprises present unique challenges and opportunities in terms of career advancement. In this chapter, we will discuss how the Rise Up Roadmap can be applied in non-profit organizations and social enterprises to help individuals achieve their career goals.
 

@@ -1,5 +1,4 @@
-Chapter 3: Strategies for Building a Promotion Plan: Creating a Plan for Building Key Skills and Competencies
-=============================================================================================================
+# Creating a Plan for Building Key Skills and Competencies
 
 Building a promotion plan requires a strategic approach that incorporates the development of key skills and competencies. In this chapter, we will discuss strategies for creating a plan to build these skills and competencies.
 

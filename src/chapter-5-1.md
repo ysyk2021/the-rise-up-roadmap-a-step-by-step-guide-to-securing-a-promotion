@@ -1,5 +1,4 @@
-Chapter 5: Overcoming Obstacles and Challenges in Career Advancement: Navigating Office Politics and Managing Conflict in the Workplace
-=======================================================================================================================================
+# Navigating Office Politics and Managing Conflict in the Workplace
 
 Office politics and workplace conflict can be major obstacles to career advancement. In order to succeed in today's professional world, individuals must know how to navigate complex interpersonal dynamics and effectively manage conflict with colleagues and superiors.
 
