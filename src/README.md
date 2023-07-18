@@ -8,5 +8,4 @@ From building self-awareness to navigating office politics and managing conflict
 
 Whether you are just starting out in your career or looking to take the next step towards a promotion, "The Rise Up Roadmap" is an essential resource for anyone looking to achieve professional growth and success. With its practical guidance and real-world examples, this book will help readers develop the skills and mindset needed to secure promotions and achieve long-term career success.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
