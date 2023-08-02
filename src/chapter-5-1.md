@@ -1,4 +1,4 @@
-Chapter 9: Navigating Office Politics and Managing Conflict in the Workplace
+Navigating Office Politics and Managing Conflict in the Workplace
 ============================================================================
 
 In today's complex work environments, navigating office politics and managing conflict is essential for career advancement. This chapter aims to provide guidance on understanding office dynamics, building positive relationships, and effectively resolving conflicts. By mastering these skills, you can navigate office politics with confidence while fostering a harmonious and productive work environment.

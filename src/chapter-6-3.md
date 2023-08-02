@@ -1,4 +1,4 @@
-Chapter 8: Using the Rise Up Roadmap for Public Service and Government Roles
+Using the Rise Up Roadmap for Public Service and Government Roles
 ============================================================================
 
 In this chapter, we will explore how you can adapt the Rise Up Roadmap framework to secure a promotion in public service and government roles. The Rise Up Roadmap provides a step-by-step guide to help you navigate the unique challenges and opportunities within these sectors. By following this roadmap, you can increase your chances of professional growth and advancement in public service and government organizations.

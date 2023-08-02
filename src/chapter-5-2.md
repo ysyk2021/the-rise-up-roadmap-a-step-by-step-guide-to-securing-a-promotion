@@ -1,4 +1,4 @@
-Chapter 11: Dealing with Imposter Syndrome and Self-Doubt in Career Growth
+Dealing with Imposter Syndrome and Self-Doubt in Career Growth
 ==========================================================================
 
 Imposter syndrome and self-doubt are common challenges that many professionals face on their journey towards career growth. These feelings can hinder your confidence, limit your potential, and undermine your ability to secure a promotion. This chapter provides strategies and techniques to overcome imposter syndrome and self-doubt, empowering you to thrive in your career.

@@ -1,4 +1,4 @@
-Chapter 1: Purpose and Scope of the Book
+Purpose and Scope of the Book
 ========================================
 
 Introduction
