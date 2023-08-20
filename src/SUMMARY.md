@@ -20,6 +20,7 @@
   - [Navigating Office Politics and Managing Conflict in the Workplace](chapter-5-1.md)
   - [Dealing with Imposter Syndrome and Self-Doubt in Career Growth](chapter-5-2.md)
   - [Managing Time and Resource Constraints in Career Development](chapter-5-3.md)
+  - [Tools and Techniques for Overcoming Obstacles and Challenges](chapter-5-4.md)
 - [Chapter 6: Applying the Rise Up Roadmap Across Different Industries and Sectors](chapter-6.md)
   - [Using the Rise Up Roadmap for Corporate Settings and Entrepreneurship](chapter-6-1.md)
   - [Applying the Rise Up Roadmap for Non-Profit Organizations and Social Enterprises](chapter-6-2.md)
