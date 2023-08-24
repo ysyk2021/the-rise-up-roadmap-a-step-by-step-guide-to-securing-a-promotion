@@ -1,4 +1,3 @@
-# Conclusion
 
 Congratulations! You have made it to the end of The Rise Up Roadmap, a step-by-step guide to securing a promotion. In this final chapter, we will recap the key points discussed throughout the book and provide final thoughts and recommendations.
 

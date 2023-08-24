@@ -1,5 +1,3 @@
-Metrics and Key Performance Indicators (KPIs) for the Rise Up Roadmap
-=================================================================================
 
 In your journey to secure a promotion using the Rise Up Roadmap, it is essential to track your progress and measure the effectiveness of your efforts. Metrics and Key Performance Indicators (KPIs) allow you to evaluate your performance objectively and make data-driven decisions. This chapter introduces important metrics and KPIs to monitor throughout your career advancement process.
 

@@ -1,5 +1,3 @@
-Chapter 6: Applying the Rise Up Roadmap Across Different Industries and Sectors
-===============================================================================
 
 The Rise Up Roadmap can be applied across different industries and sectors. In this chapter, we will discuss how the Rise Up Roadmap can be used in corporate settings, entrepreneurship, non-profit organizations and social enterprises, and public service and government roles.
 

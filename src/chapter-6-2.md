@@ -1,5 +1,3 @@
-Applying the Rise Up Roadmap for Non-Profit Organizations and Social Enterprises
-===========================================================================================
 
 In this chapter, we will explore how the Rise Up Roadmap can be applied specifically to non-profit organizations and social enterprises. While the core principles of securing a promotion remain the same, there are unique considerations and strategies for those working in these sectors. By following the steps outlined in the Rise Up Roadmap and applying them within the context of non-profit organizations and social enterprises, you can increase your chances of advancing your career and making a meaningful impact.
 

@@ -1,5 +1,3 @@
-Chapter 3: Strategies for Building a Promotion Plan
-===================================================
 
 Building a promotion plan requires a strategic approach that incorporates self-awareness, performance evaluation, and skill development. In this chapter, we will discuss strategies for building a promotion plan.
 

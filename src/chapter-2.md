@@ -1,5 +1,3 @@
-Chapter 2: Defining the Rise Up Roadmap
-=======================================
 
 To effectively guide individuals through the process of securing a promotion, it is important to define the components of a successful promotion strategy and create a framework for achieving career advancement. In this chapter, we will identify the components of a successful promotion strategy, recognize the connection between skill development and career advancement, and create a framework for the Rise Up Roadmap.
 
